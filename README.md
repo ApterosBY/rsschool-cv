@@ -1,1 +1,1 @@
-# rsschool-cv
+https://ApterosBY.github.io/rsschool-cv/cv
